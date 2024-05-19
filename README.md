@@ -12,7 +12,7 @@ And here's the best part: you don't have to rush through it. You can take your t
 
 So, "BOB" is like a fantastic adventure with its own special music and pictures that helps you explore big ideas, and it's something you can enjoy now and keep enjoying as you get older. It's a journey of a lifetime in a magical world of words and ideas.
 
-**The Book of Bless: A Manifesto for Harmonious Integration**
+### The Book of Bless: A Manifesto for Harmonious Integration
 
 ---
 
